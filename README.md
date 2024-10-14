@@ -1,3 +1,3 @@
-- 👋 Hi, I’m ABdellah
+- 👋 Hi, I’m Abdellah
 - 👀 I’m interested in technology , pc hardware and games 
 - 🌱 I’m currently learning computer science 
